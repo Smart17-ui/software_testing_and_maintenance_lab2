@@ -1,1 +1,2 @@
-Team lead: Smart Mbuzi
+Team lead: Smart Mbuzi.
+
