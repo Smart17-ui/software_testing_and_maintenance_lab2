@@ -1,1 +1,1 @@
-Team lead: Christopher Banda
+Team lead: Christopher Banda & Smart Mbuzi
